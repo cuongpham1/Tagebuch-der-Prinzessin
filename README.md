@@ -45,3 +45,20 @@ Juni 21
   NavigationView
 
   Parse JSON
+
+  Juni 22
+
+  - Day off - keine Lust
+
+  Juni 23
+
+  - Learning Stock
+  - 3 task pomodoro deutsch lernen
+
+  Juni 24
+
+  - Day off - keine Energie
+
+  Juni 25
+
+  - Stock lernen weiter
