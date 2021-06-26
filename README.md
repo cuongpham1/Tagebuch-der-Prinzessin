@@ -62,3 +62,7 @@ Juni 21
   Juni 25
 
   - Stock lernen weiter
+
+  Juni 26
+
+  - Day off, nicht zu viel arbeit
