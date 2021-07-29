@@ -46,23 +46,43 @@ Juni 21
 
   Parse JSON
 
-  Juni 22
+Juni 22
 
   - Day off - keine Lust
 
-  Juni 23
+Juni 23
 
   - Learning Stock
   - 3 task pomodoro deutsch lernen
 
-  Juni 24
+Juni 24
 
   - Day off - keine Energie
 
-  Juni 25
+Juni 25
 
   - Stock lernen weiter
 
-  Juni 26
+Juni 26
 
   - Day off, nicht zu viel arbeit
+
+Juni 27
+
+ - Stock lernen (tag drei)
+
+ Juni 28,29,30
+
+ - Day off
+
+ Juli 1
+
+ - Half day off
+
+ Juli 2,..,29
+
+ - Hospital Playlist, Breaking Bad schauen
+ - Stock spielen
+ - Gym trainieren
+ - Rad fahren
+ - lustlos,richtungslos, langweilig, sehr faul, ärgerlich.
