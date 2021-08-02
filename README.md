@@ -86,3 +86,13 @@ Juni 27
  - Gym trainieren
  - Rad fahren
  - lustlos,richtungslos, langweilig, sehr faul, ärgerlich.
+
+ Juli 30,31
+
+ - Day off
+
+ August 1,2
+
+- Beginnen in Lehrbuch von Seite 10 bis 13
+- Arbeitbuch von Seite 7 bis 11
+- Gramatik und Aktiv von Seite 9 bis 26
